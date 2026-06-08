@@ -1,0 +1,1 @@
+exercícios teste de lógica
